@@ -1,0 +1,1 @@
+![NA](slide4.png)
